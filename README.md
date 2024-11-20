@@ -1,4 +1,4 @@
-<img src="[https://ibb.co/HGLWZwF](https://i.ibb.co/L9DLKjk/image.webp)">
+<img src="https://i.ibb.co/L9DLKjk/image.webp">
 
 # Leaked Hacking Pack 2024
 All And Free Leaked RAT's Binder & Scanner & Rootkit  
