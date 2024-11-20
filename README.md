@@ -25,4 +25,4 @@ All And Free Leaked RAT's Binder & Scanner & Rootkit
 - Agendador De Tarefas
 
 
-# Zip Password : 69
+# Zip Password : 123
